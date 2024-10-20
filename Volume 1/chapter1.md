@@ -1,4 +1,4 @@
-Introduction upon the Full Moon
+# Introduction upon the Full Moon
 
 The story start with intense moment where 'Alpaca' running the hall of the
 Cherryton High School corridor to save his fellow carnivore classmate. Where
